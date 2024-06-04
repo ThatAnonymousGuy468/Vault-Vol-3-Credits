@@ -1,7 +1,8 @@
 # Vault-Vol-3-Credits
 Credits for photos, footage, and music from the Vault Vol. 3
 
-Photos:
+Images:
+
 Mutant Elephant in the room: https://www.nexusmods.com/fallout4/mods/63110
 
 Starship: https://lh5.ggpht.com/_hVOW2U7K4-M/TSOhOGYRTeI/AAAAAAABZoc/n6t_pEMEh8U/s900/76-2%20visa%20pour%20la%20planete%20mars%202.jpg
