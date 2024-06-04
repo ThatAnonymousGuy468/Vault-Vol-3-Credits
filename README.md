@@ -118,6 +118,7 @@ Mod Images: https://www.nexusmods.com/fallout4/mods/23651
 Dogscape: https://vsdebating.fandom.com/wiki/Dogscape
 
 Videos:
+
 Fallout 3 ad: Pulowski Preservation Services | FalloutFansEditor: https://www.youtube.com/watch?v=x7GH8fBXIw4&list=PLXb3v0URj0sDJrq7-cFYdcsfID4HbTsf7&index=6
 
 TREMORS Clip - "Burt's Guns" (1990) Michael Gross: JoBlo Movie Clips: https://www.youtube.com/watch?v=qOVTE48ElEw
@@ -141,14 +142,23 @@ Booing Sound: https://www.youtube.com/watch?v=PS_cV18z67Y
 Nuclear Bomb: https://www.youtube.com/watch?v=vMopb1eN2t4
 
 Music:
+
 Deeper and Darker | Fallout 4 OST | Bethesda Softworks Music: https://www.youtube.com/watch?v=SLAL_M8uNYk&list=PLe0EamRrnC6RtxInqlP8CG2Idy9bdT43T&index=7
+
 Fallout 1 Soundtrack - Vault of the Future (Vault 13) | TheStableDweller: https://www.youtube.com/watch?v=Uf7l_em3nrs
+
 Brightness Calling | Fallout 4 OST | Bethesda Softworks Music: https://www.youtube.com/watch?v=ydldU4UE2QQ&list=PLe0EamRrnC6RtxInqlP8CG2Idy9bdT43T&index=10
+
 Fallout 1.5 Resurrection OST – Progema | SlipgateTourist: https://www.youtube.com/watch?v=8S5M2o38iEc
+
 Horror Ambience | Underworld – Myuu | Myuu: https://www.youtube.com/watch?v=hZqdaWPSa5A
+
 Living in the Dark – Myuu | Myuu: https://www.youtube.com/watch?v=_SkUsk07Z-I&list=PLt4ZkJ3lYmFUfelz5L_jC6xIknG9leBBX
+
 Horror Ambience | Growing Shadows – Myuu | Myuu: https://www.youtube.com/watch?v=ocS4JTgNjLo
 
 Fallout 1.5 Resurrection OST – Scrapyard | SlipgateTourist: https://www.youtube.com/watch?v=YmtXwNU7R74
+
 Fallout - Van Buren Track 1 | The Shattered Dragon: https://www.youtube.com/watch?v=p35hAOD9308
+
 Fallout 1 Soundtrack - Underground Troubles (Caves) | TheStableDweller: https://www.youtube.com/watch?v=6Bz3wBuRpEQ
