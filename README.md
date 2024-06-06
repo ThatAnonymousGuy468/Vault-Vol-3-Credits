@@ -75,6 +75,14 @@ Fate of Factions: https://www.history.com/news/8-reasons-why-rome-fell
 
 ZAX: https://fallout.fandom.com/wiki/ZAX
 
+Terminal Entry: https://www.reddit.com/r/fo4/comments/hcrpxu/probably_one_of_the_best_terminal_entries_ive/#lightbox
+
+Mysterious: https://fallout.wiki/wiki/Mysterious_Stranger_%28Fallout:_The_Roleplaying_Game%29
+
+Campfire: https://writingonthewebfall2015.wordpress.com/2015/10/14/creepypastas-urban-legends-and-campfire-stories-for-the-internet/
+
+Dog: https://www.reddit.com/r/oddlyterrifying/comments/erste2/a_painting_by_dragan_bibin/
+
 Vault 34: https://fallout.fandom.com/wiki/Vault_34?file=Vault_34_1st_floor.jpg
 
 Took the Kids: https://knowyourmeme.com/photos/1410481-she-took-the-fucking-kids
@@ -82,6 +90,10 @@ Took the Kids: https://knowyourmeme.com/photos/1410481-she-took-the-fucking-kids
 Vault 92: https://screenrant.com/fallout-3-vault-tec-experiments-evil-dark-creepy/
 
 Educational Tapes: https://www.veletsianos.com/2018/08/21/video-edtech-growing-up/
+
+Vault 0 Images: https://fallout.fandom.com/wiki/Vault_0
+
+Eugenics: https://teachingamericanhistory.org/document/chapter-19-the-progressive-era-eugenics/
 
 Old World Blues: https://store.steampowered.com/agecheck/app/72750/
 
@@ -103,6 +115,8 @@ Vault 87: https://fallout.fandom.com/wiki/Vault_87?file=Fallout_magic_Vault_87_F
 
 Vault 87: https://fallout.fandom.com/wiki/Failed_FEV_subject?file=FailedFEV.jpg
 
+Vacuum of Space: https://starwars.fandom.com/wiki/Vacuum
+
 Cage: https://www.turbosquid.com/es/3d-models/3d-max-cage-human/698973
 
 Vault 106 Images: https://fallout-archive.fandom.com/wiki/Vault_106
@@ -118,7 +132,6 @@ Mod Images: https://www.nexusmods.com/fallout4/mods/23651
 Dogscape: https://vsdebating.fandom.com/wiki/Dogscape
 
 
-
 Videos:
 
 Fallout 3 ad: Pulowski Preservation Services | FalloutFansEditor: https://www.youtube.com/watch?v=x7GH8fBXIw4&list=PLXb3v0URj0sDJrq7-cFYdcsfID4HbTsf7&index=6
@@ -127,6 +140,8 @@ TREMORS Clip - "Burt's Guns" (1990) Michael Gross: JoBlo Movie Clips: https://ww
 
 Explosion croma key green screen, with explosion sound effect! | 
 Timothy Miller: https://www.youtube.com/watch?v=Q7KmAe8_jZE
+
+Boo-womp | Xevio: https://www.youtube.com/watch?v=KnhXwlFeRP8
 
 Fallout 3 E3 2008 Trailer Upgraded (4K) | SnazzyAI: https://www.youtube.com/watch?v=vj5JOfYtMEo
 
@@ -139,11 +154,11 @@ Search Spotlight Turn On Sound Effect | SoundEffectsArchive: https://www.youtube
 
 The Mouse Utopia Experiments | Down the Rabbit Hole | Fredrik Knudsen: https://www.youtube.com/watch?app=desktop&v=NgGLFozNM2o
 
-Booing Sound: https://www.youtube.com/watch?v=PS_cV18z67Y
+Boo! sound effect | All Sounds: https://www.youtube.com/watch?v=PS_cV18z67Y
 
-Nuclear Bomb: https://www.youtube.com/watch?v=vMopb1eN2t4
+Fallout New California Join the Unity (Mutants) Ending | Siu-King**: https://www.youtube.com/watch?v=e5b_I-EiDyA 
 
-
+Nuclear Bomb Dropped on Village – 1950s Test | FootageArchive - Videos From The Past: https://www.youtube.com/watch?v=vMopb1eN2t4
 
 Music:
 
