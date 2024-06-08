@@ -19,6 +19,12 @@ Ideal Human: https://zoedavidsonjewellery.wordpress.com/2010/11/20/leonardo-da-v
 
 Skeleton: https://gamerant.com/fallout-4-things-you-missed-in-vault-75/
 
+Metropolis: https://www.archdaily.com/237385/films-architecture-metropolis
+
+Confused: https://www.deviantart.com/stephen-fisher/art/Vault-Boy-Looking-Rather-Confused-Concerned-778629025
+
+Scared: https://x.com/EricVespe/status/1001512015591104512
+
 Sacrificed: https://fallout.fandom.com/wiki/Vault_51?file=FO76NW_Vault_51_nursery_skeleton.png
 
 If You Only Knew: https://imgflip.com/memegenerator/397922114/If-only-you-knew-how-bad-things-really-are
@@ -71,19 +77,21 @@ Allegory of the Cave: https://www.studiobinder.com/blog/platos-allegory-of-the-c
 
 Socrates: https://www.marble-sculpture.com/products/socrates
 
+Vault City: https://fallout.wiki/wiki/Vault_City#/media/File:Fo2_Vault_City_Council.png
+
 Fate of Factions: https://www.history.com/news/8-reasons-why-rome-fell
 
 ZAX: https://fallout.fandom.com/wiki/ZAX
 
 Terminal Entry: https://www.reddit.com/r/fo4/comments/hcrpxu/probably_one_of_the_best_terminal_entries_ive/#lightbox
 
-Mysterious: https://fallout.wiki/wiki/Mysterious_Stranger_%28Fallout:_The_Roleplaying_Game%29
-
 Campfire: https://writingonthewebfall2015.wordpress.com/2015/10/14/creepypastas-urban-legends-and-campfire-stories-for-the-internet/
 
 Dog: https://www.reddit.com/r/oddlyterrifying/comments/erste2/a_painting_by_dragan_bibin/
 
-Vault 34: https://fallout.fandom.com/wiki/Vault_34?file=Vault_34_1st_floor.jpg
+Vault 34 Image: https://fallout.fandom.com/wiki/Vault_34?file=Vault_34_1st_floor.jpg
+
+Vault 34 Reactor: https://fallout.fandom.com/wiki/Hard_Luck_Blues
 
 Took the Kids: https://knowyourmeme.com/photos/1410481-she-took-the-fucking-kids
 
@@ -91,7 +99,11 @@ Vault 92: https://screenrant.com/fallout-3-vault-tec-experiments-evil-dark-creep
 
 Educational Tapes: https://www.veletsianos.com/2018/08/21/video-edtech-growing-up/
 
-Vault 0 Images: https://fallout.fandom.com/wiki/Vault_0
+Plague: https://abcnews.go.com/Health/new-mexico-man-dies-plague-states-1st-fatality/story?id=108040818
+
+Central Vault: https://www.reddit.com/r/Fallout/comments/1zij2f/fallout_vault_concept_art/
+
+Missile Silo: https://www.chromehooves.net/missile_silos.htm
 
 Eugenics: https://teachingamericanhistory.org/document/chapter-19-the-progressive-era-eugenics/
 
@@ -102,6 +114,8 @@ Retrofuture: https://allthatsinteresting.com/retrofuturism
 Hauntology: https://sfrareview.org/wp-content/uploads/2022/07/emmadee.png
 
 Vault 27: https://imgur.com/a/fallout-bible-pg1-99-Srjo8
+
+Overcrowded: https://www.boweryboyshistory.com/2015/12/midnight-in-times-square-the-history-of-new-york-city-on-new-years-eve.html
 
 Fallout Bible: https://www.goodreads.com/book/show/19444787-the-fallout-bible
 
@@ -117,7 +131,11 @@ Vault 87: https://fallout.fandom.com/wiki/Failed_FEV_subject?file=FailedFEV.jpg
 
 Vacuum of Space: https://starwars.fandom.com/wiki/Vacuum
 
-Cage: https://www.turbosquid.com/es/3d-models/3d-max-cage-human/698973
+FEV Experiment: https://gamerant.com/fallout-forced-evolutionary-virus-fev-lore-great-war/
+
+Super Mutant: https://fallout.fandom.com/wiki/Harry_(Fallout)
+
+Super Soldier: https://fallout.wiki/wiki/File:FO3_ConceptArt_Behemoth09.webp
 
 Vault 106 Images: https://fallout-archive.fandom.com/wiki/Vault_106
 
@@ -161,6 +179,7 @@ Fallout New California Join the Unity (Mutants) Ending | Siu-King**: https://www
 Nuclear Bomb Dropped on Village – 1950s Test | FootageArchive - Videos From The Past: https://www.youtube.com/watch?v=vMopb1eN2t4
 
 Music:
+Fallout 1 Soundtrack - Desert Wind (The Wasteland) | TheStableDweller: https://www.youtube.com/watch?v=EaRiY7WkMhw
 
 Deeper and Darker | Fallout 4 OST | Bethesda Softworks Music: https://www.youtube.com/watch?v=SLAL_M8uNYk&list=PLe0EamRrnC6RtxInqlP8CG2Idy9bdT43T&index=7
 
